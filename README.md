@@ -1,0 +1,1 @@
+# Nggak-ada-TikTok-ku-disini-awokawok
